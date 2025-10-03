@@ -53,3 +53,5 @@ Interm has park mark.
 Interm has park cross.
 
 Interm has major.
+
+The word "interm" is park word for interest.
