@@ -56,4 +56,8 @@ Interm has major.
 
 Interm is marry base.
 
+Interm is heart marry base.
+
+Interm is heart base.
+
 The word "interm" is park word for interest.
