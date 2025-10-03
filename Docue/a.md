@@ -54,4 +54,6 @@ Interm has park cross.
 
 Interm has major.
 
+Interm is marry base.
+
 The word "interm" is park word for interest.
