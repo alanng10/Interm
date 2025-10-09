@@ -60,4 +60,6 @@ Interm is heart marry base.
 
 Interm is heart base.
 
+Interm is value worth gain.
+
 The word "interm" is park word for interest.
