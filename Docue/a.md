@@ -62,6 +62,8 @@ Interm is heart base.
 
 Interm is feel base.
 
+Interm is feel base expect benefit with malign.
+
 Interm is value worth gain.
 
 The word "interm" is park word for interest.
